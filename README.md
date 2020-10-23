@@ -1,1 +1,0 @@
-# beeyuncuh.github.io
